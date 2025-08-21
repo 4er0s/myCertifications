@@ -1,4 +1,4 @@
-# Meus Certificados e Cursos 🚀
+# Meus Certificados e Cursos 
 
 Bem-vindo ao meu portfólio de qualificações em Tecnologia da Informação.  
 Aqui estão meus certificados organizados por área.
